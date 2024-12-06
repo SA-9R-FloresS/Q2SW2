@@ -1,2 +1,2 @@
-# ⊹ Q2SW2 Additional References 𓂃
+# ⊹ Q2SW2 References 𓂃
 https://www.freepik.com/free-photos-vectors/tech-background
